@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @AjaySinghMehra
+- 👀 I’m interested in Coding To Create
+- 🌱 I’m currently learning Social Life
+- 📫 How to reach me -Insta: ajjumehra17
+- 😄 Pronouns: AJ
+- ⚡ Fun fact: Im Anime-adDicaTed
